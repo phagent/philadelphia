@@ -2276,33 +2276,66 @@ que Jésus leur a fait sont similaires:
 >2:20 Vous permettez à cette femme, cette Jézabel qui se dit prophète, d'égarer mes serviteurs. Elle les
 >encourage à adorer les idoles, à manger de la nourriture offerte aux idoles et à commettre des péchés sexuels.  
 
-
+```
 
 ## ÉPISODE 10 Décryptage de l'Apocalypse 20:9 ou la destruction de la juiverie et des faux idéologues blancs 
 
-
+```
 Plan:
-10.1 Les mots « Liberté égalité fraternité » ont lentement démarré la guerre contre l'homme européen
-10.2 L'Apocalypse 20 ne se place pas dans une continuité chronologique de l'Apocalypse 19
-10.3 L'Apocalypse 20 présente en quelques lignes l'histoire du Christianisme aryen en Europe et 2000 ans de guerre raciale contre le reste du monde
-10.4 Le Tout-Puissant ne va pas sauver tous les blancs: la couronne de la vie a été offerte à Smyrne
+10.1 Les mots « Liberté égalité fraternité » ont lentement 
+démarré la guerre contre l'homme européen
+10.2 L'Apocalypse 20 ne se place pas dans une continuité 
+chronologique de l'Apocalypse 19
+10.3 L'Apocalypse 20 présente en quelques lignes 
+l'histoire du Christianisme aryen en Europe et 2000
+ans de guerre raciale contre le reste du monde
+10.4 Le Tout-Puissant ne va pas sauver tous les blancs:
+la couronne de la vie a été offerte à Smyrne
 
 -------------
 
-10.1 Les mots « Liberté égalité fraternité » ont lentement démarré la guerre contre l'homme européen
+10.1 Les mots « Liberté égalité fraternité » ont lentement 
+démarré la guerre contre l'homme européen
      
 10.1.1 Le contexte en relation avec l'épisode 9
 
-J'ai décrit dans l'épisode 9 les deux principaux ennemis du Christ: 
+J'ai décrit dans l'épisode 9 les deux principaux ennemis 
+du Christ: 
 -- la juiverie,
 -- le faux prophète (ou le faux idéologue) européen.
-Ces deux adversaires ont lutté contre l'église à la fois à son début (les années 0-300), mais aussi à la fin (des temps). Leur principe destructif a toujours été le même, et c'est uniquement la forme de manifestation qui a changé d'une époque à l'autre. La Section 9.(D) fournit plusieurs exemples d'épitres qui ont prévenu les fidèles sur les multiples apparitions de ces deux adversaires. 
+Ces deux adversaires ont lutté contre l'église à la fois à 
+son début (les années 0-300), mais aussi à la fin (des 
+temps). Leur principe destructif a toujours été le même, et 
+c'est uniquement la forme de manifestation qui a changé 
+d'une époque à l'autre. La Section 9.(D) fournit plusieurs
+exemples d'épitres qui ont prévenu les fidèles sur les 
+multiples apparitions de ces deux adversaires. 
 
-On sait que la juiverie d'aujourd'hui est assistée par d'innombrables faux idéologues blancs dans sa lutte contre le Christianisme et contre le bien commun de l'humanité européenne. Cette alliance moderne entre la juiverie et ces faux idéologues ne s'est pas bâtie en un jour. Ils ont travaillé secrètement pendant des siècles dans des organisations maçonniques ou simplement parce qu'ils ont trouvé une rencontre d'esprits. Mais retenez qu'il s'agit d'une réapparition de deux esprits portés par deux deux races qui existaient déjà à l'époque du Christ.
+On sait que la juiverie d'aujourd'hui est assistée par 
+d'innombrables faux idéologues blancs dans sa lutte contre 
+le Christianisme et contre le bien commun de l'humanité
+européenne. Cette alliance moderne entre la juiverie et ces 
+faux idéologues ne s'est pas bâtie en un jour. Ils ont 
+travaillé secrètement pendant des siècles dans des 
+organisations maçonniques ou simplement parce qu'ils ont 
+trouvé une rencontre d'esprits. Mais retenez qu'il s'agit 
+d'une réapparition de deux esprits portés par deux deux 
+races qui existaient déjà à l'époque du Christ.
 
-10.1.2 La proclamation « Liberté, égalité fraternité » dans le verset 16:13
+10.1.2 La proclamation « Liberté, égalité fraternité » dans 
+le verset 16:13
 
-Je donne par la suite une interprétation que j'ai trouvée dans une source externe, c.à.d., dans les travaux du mouvement (américain) Christian Identity.  D'habitude, j'ai travaillé tout seul sans rentrer dans l'orbite d'un  mouvement chrétien existant. Dans la mesure du possible, j'ai cherché directement une inspiration dans les couches les plus profondes de mon être, à une profondeur où il est difficile de comprendre comment les idées se forment.  J'ai espéré y trouver une rencontre avec la terre et avec le ciel, avec l'esprit de mes ancêtres et avec l'esprit de l'Éternel.
+Je donne par la suite une interprétation que j'ai trouvée 
+dans une source externe, c.à.d., dans les travaux du 
+mouvement (américain) Christian Identity.  D'habitude, j'ai 
+travaillé tout seul sans rentrer dans l'orbite d'un  
+mouvement chrétien existant. Dans la mesure du possible, 
+j'ai cherché directement une inspiration dans les couches 
+les plus profondes de mon être, à une profondeur où il est 
+difficile de comprendre comment les idées se forment.  J'ai 
+espéré y trouver une rencontre avec la terre et avec le 
+ciel, avec l'esprit de mes ancêtres et avec l'esprit de 
+l'Éternel.
  
 > Apo 16:12 Puis le sixième ange versa sa 
 > coupe sur le grand fleuve Euphrate, et 
@@ -2315,7 +2348,12 @@ Je donne par la suite une interprétation que j'ai trouvée dans une source exte
 > sauter de la bouche du dragon, de la 
 > bête et du faux prophète.
 
-Satan, la juiverie et le faux prophète aryen ont proclamé un jour « Liberté, Égalité, Fraternité ».  Depuis 1789, ces mots ont été répétés d'innombrables fois, pas seulement par les français, mais aussi par d'autres peuples d'Europe qui ont absorbé leur esprit. Les juifs l'ont décrit le mieux dans les protocoles de Sages de Sion: 
+Satan, la juiverie et le faux prophète aryen ont proclamé un 
+jour « Liberté, Égalité, Fraternité ».  Depuis 1789, ces 
+mots ont été répétés d'innombrables fois, pas seulement par 
+les français, mais aussi par d'autres peuples d'Europe qui 
+ont absorbé leur esprit. Les juifs l'ont décrit le mieux 
+dans les protocoles de Sages de Sion: 
 > C'est nous, qui les premiers, dans ce 
 > qui est encore l'antiquité, avons jeté 
 > au peuple les mots « Liberté, Égalité, 
@@ -2327,14 +2365,33 @@ Satan, la juiverie et le faux prophète aryen ont proclamé un jour « Liberté,
 > la véritable liberté individuelle, 
 > autrefois si bien garantie de la 
 > contrainte de la foule. 
-L'action des ces trois mots a été progressive.  Au début, ils ont déclenché l'abolition des privilèges des rois et des évêques; par la suite, ils ont servi à abolir tout l'ordre naturel aryen bâti grâce à des millénaires d'expérience.  Ces trois mots ont été en effet répétés maintes fois par d'innombrables « perroquets inconscients ». C'est pour cela qu'on peut voir ces trois mots comme trois grenouilles qui n'ont pas arrêté de rebondir d'une tête à l'autre depuis 1789. Le résultat final a été le suivant: on a brisé la légitimité morale des européens à repousser les races étrangères qui veulent s'installer en Europe. Très peu de gens ont compris qu'il s'agissait d'un dicton suicidaire: le principe égalitaire a été conçu pour abolir à terme tous nos droits et tous nos privilèges.
+L'action des ces trois mots a été progressive.  Au début, 
+ils ont déclenché l'abolition des privilèges des rois et des 
+évêques; par la suite, ils ont servi à abolir tout l'ordre 
+naturel aryen bâti grâce à des millénaires d'expérience.  
+Ces trois mots ont été en effet répétés maintes fois par 
+d'innombrables « perroquets inconscients ». C'est pour cela 
+qu'on peut voir ces trois mots comme trois grenouilles qui 
+n'ont pas arrêté de rebondir d'une tête à l'autre depuis 
+1789. Le résultat final a été le suivant: on a brisé la 
+légitimité morale des européens à repousser les races 
+étrangères qui veulent s'installer en Europe. Très peu de 
+gens ont compris qu'il s'agissait d'un dicton suicidaire: le 
+principe égalitaire a été conçu pour abolir à terme tous nos 
+droits et tous nos privilèges.
  
 > Apo 16:14 Ces démons qui accomplissent 
 > des miracles ont amené tous les 
 > dirigeants du monde à se rassembler 
 > pour combattre le Seigneur en ce grand 
 > jour de jugement de Dieu Tout-Puissant. 
-Les mots « Liberté, Égalité, Fraternité » ont démarré le processus qui a culminé avec la guerre de Gog et Magog évoquée dans l'épisode 4, c.à.d., la guerre du monde entier contre les peuples de souche européenne (Section 10.3.2).  Les « miracles » évoqués ici représentent des tours de force intellectuelle, auréolés d'un prestige presque mystique, associés à une très grande puissance sur les masses, 
+Les mots « Liberté, Égalité, Fraternité » ont démarré le 
+processus qui a culminé avec la guerre de Gog et Magog 
+évoquée dans l'épisode 4, c.à.d., la guerre du monde entier 
+contre les peuples de souche européenne (Section 10.3.2).  
+Les « miracles » évoqués ici représentent des tours de force 
+intellectuelle, auréolés d'un prestige presque mystique, 
+associés à une très grande puissance sur les masses, 
 
 > Apo 16:15 « Prenez garde : je viendrai 
 > comme un voleur, de façon inattendue ! 
@@ -2342,14 +2399,39 @@ Les mots « Liberté, Égalité, Fraternité » ont démarré le processus qui a
 > moi, qui tiennent leurs robes prêtes 
 > pour ne pas avoir à marcher nus et 
 > honteux. »
-Jésus nous avertit ici que ces évènements se produiront d'une manière presque imperceptible. Autrement dit, il est très facile de ne pas percevoir l'accomplissement de cette prophétie, car il n'est pas évident de déceler la métaphore derrière les grenouilles. Beaucoup ont pu tomber dans le piège de penser que cette prophétie doit faire référence à des armés physiques qui se déplacent « vers l'Ouest sans rencontrer d'obstacles ». Mais les juifs n'ont pas besoin d'une force armée pour faire venir en occident les pires races de cette Terre; l'invasion se produit de manière pacifique, en ce moment même, tout les jours un peu plus.
+Jésus nous avertit ici que ces évènements se produiront 
+d'une manière presque imperceptible. Autrement dit, il est 
+très facile de ne pas percevoir l'accomplissement de cette 
+prophétie, car il n'est pas évident de déceler la métaphore 
+derrière les grenouilles. Beaucoup ont pu tomber dans le 
+piège de penser que cette prophétie doit faire référence à 
+des armés physiques qui se déplacent « vers l'Ouest sans 
+rencontrer d'obstacles ». Mais les juifs n'ont pas besoin 
+d'une force armée pour faire venir en occident les pires 
+races de cette Terre; l'invasion se produit de manière 
+pacifique, en ce moment même, tout les jours un peu plus.
 
-Note: Ces principes égalitaires (associées à la révolution française) on été reprises par Karl Marx pour les transformer en une formule politique à dose massive. Cela a été une étape importante dans la guerre que les juifs nous livrent.  On peut dire que le faux prophète blanc n'a fait que suivre le « grand » prophète juif Marx qui, selon Hitler, « fut simplement le seul, dans le marécage d'un monde pourri, à reconnaître avec la sûreté de coup d'œil d'un *prophète* les matières les plus spécifiquement toxiques ; il s'en empara, et, comme un adepte de la magie noire, les employa à dose massive pour anéantir l'existence indépendante des libres nations de ce monde. » 
+Note: Ces principes égalitaires (associées à la révolution 
+française) on été reprises par Karl Marx pour les 
+transformer en une formule politique à dose massive. Cela a 
+été une étape importante dans la guerre que les juifs nous 
+livrent.  On peut dire que le faux prophète blanc n'a fait 
+que suivre le « grand » prophète juif Marx qui, selon 
+Hitler, « fut simplement le seul, dans le marécage d'un 
+monde pourri, à reconnaître avec la sûreté de coup d'œil 
+d'un *prophète* les matières les plus spécifiquement 
+toxiques ; il s'en empara, et, comme un adepte de la magie 
+noire, les employa à dose massive pour anéantir l'existence 
+indépendante des libres nations de ce monde. » 
 
 
-10.2 L'Apocalypse 20 ne se place pas dans une continuité chronologique de l'Apocalypse 19
+10.2 L'Apocalypse 20 ne se place pas dans une continuité 
+chronologique de l'Apocalypse 19
 
-Le chapitre 19 décrit l'arrivée des armées célestes de Jésus au tout dernier moment, à la fin de la fin de l'histoire de l'humanité. Jésus lui-même apparait comme un chevalier qui part en guerre pour juger le monde:
+Le chapitre 19 décrit l'arrivée des armées célestes de Jésus 
+au tout dernier moment, à la fin de la fin de l'histoire de 
+l'humanité. Jésus lui-même apparait comme un chevalier qui 
+part en guerre pour juger le monde:
 > Apo 19:11 Alors je vis le ciel ouvert, 
 > et un cheval blanc se tenait là. Et 
 > celui qui était assis sur le cheval 
@@ -2357,7 +2439,10 @@ Le chapitre 19 décrit l'arrivée des armées célestes de Jésus au tout dernie
 > juge de façon juste et fait ensuite la 
 > guerre.
 
-Un ange annonce que le monde que Jésus va trouver à son retour sera un monde en décomposition totale, sans aucune force constructive, sans aucune trace d'amour pour ses proches.
+Un ange annonce que le monde que Jésus va trouver à son 
+retour sera un monde en décomposition totale, sans aucune
+force constructive, sans aucune trace d'amour pour ses 
+proches.
 > Apo 19:17 Puis j'ai vu un ange debout 
 > dans le soleil, qui criait aux vautours 
 > volant haut dans le ciel : « Venez !  
@@ -2369,14 +2454,27 @@ Un ange annonce que le monde que Jésus va trouver à son retour sera un monde e
 > cavaliers, et de toute l'humanité, 
 > libre et esclave, petite et grande.»
 
-C'est encore une autre prophétie qui indique que notre système d'organisation -- qualifié de  babylonien par la Bible -- va finir par s'effondrer complètement.  J'ai évoqué la même finalité dans l'Épisode 1 sur Daniel 2 et au point (B) de l'épisode 3 sur la bête juive 666 (avec sept têtes et dix cornes).  Ces interprétations convergent vers l'idée que la bête juive 666, assistée par d'innombrables faux idéologues aryens vont finir par détruire l'humanité toute entière.  Dans un avenir pas trop éloigné, on risque d'être les témoins d'un carnage total, causé en partie par la  cohabitation de plusieurs races avec des intérêts contraires.
+C'est encore une autre prophétie qui indique que notre 
+système d'organisation -- qualifié de  babylonien par la 
+Bible -- va finir par s'effondrer complètement.  J'ai évoqué 
+la même finalité dans l'Épisode 1 sur Daniel 2 et au point 
+(B) de l'épisode 3 sur la bête juive 666 (avec sept têtes 
+et dix cornes).  Ces interprétations convergent vers l'idée 
+que la bête juive 666, assistée par d'innombrables faux 
+idéologues aryens vont finir par détruire l'humanité toute 
+entière.  Dans un avenir pas trop éloigné, on risque d'être 
+les témoins d'un carnage total, causé en partie par la  
+cohabitation de plusieurs races avec des intérêts contraires.
 
 > Apo 19:19 Puis j'ai vu la bête 
 > rassembler les rois de la terre et 
 > leurs armées afin de combattre celui 
 > qui était assis sur le cheval et son 
 > armée.
-Il s'agit de la bête juive 666 qui part en guerre contre le chevalier Christ (le « Véritable » du verset 19:11 plus haut) et contre son armée de fidèles -- et plus tard contre tous les peuples de souche européenne.
+Il s'agit de la bête juive 666 qui part en guerre contre le 
+chevalier Christ (le « Véritable » du verset 19:11 plus 
+haut) et contre son armée de fidèles -- et plus tard contre 
+tous les peuples de souche européenne.
 
 > Apo 19:20 Et la bête fut capturée, et 
 > avec elle le faux prophète qui faisait 
@@ -2387,9 +2485,25 @@ Il s'agit de la bête juive 666 qui part en guerre contre le chevalier Christ (l
 > La bête et son faux prophète furent 
 > jetés vivants dans le lac de feu qui 
 > brûle avec du soufre.
-Ce verset nous rappelle que le faux prophète (aryen) a assisté la bête juive 666 à imposer la dictature mondiale décrite dans l'épisode 3. Dans l'Apocalypse 13, le faux prophète a été décrit comme une bête qui surgit de la terre, par opposition à la bête juive 666 qui était surgie de la mer -- ou de l'abysse (c.à.d., d'un endroit obscure difficile à définir). 
+Ce verset nous rappelle que le faux prophète (aryen) a 
+assisté la bête juive 666 à imposer la dictature mondiale 
+décrite dans l'épisode 3. Dans l'Apocalypse 13, le faux 
+prophète a été décrit comme une bête qui surgit de la terre, 
+par opposition à la bête juive 666 qui était surgie de la 
+mer -- ou de l'abysse (c.à.d., d'un endroit obscure 
+difficile à définir). 
 
-Note technique: ce verset 19:20 confirme une importante liaison avec l'Apocalypse 13:11-15 où on apprend que la bête surgie de la terre « ordonna aux gens du monde entier de faire une grande statue de la première bête [note : la bête juive 666], qui a été mortellement blessée et qui revint ensuite à la vie. Il lui fut permis de donner vie à cette statue afin qu'elle puisse parler. Puis la statue a ordonné que quiconque refusait de l'adorer devait mourir. » La liaison est importante car elle nous offre la clé de compréhension pour identifier la bête surgie de la terre avec le faux prophète.
+Note technique: ce verset 19:20 confirme une importante 
+liaison avec l'Apocalypse 13:11-15 où on apprend que la bête 
+surgie de la terre « ordonna aux gens du monde entier de 
+faire une grande statue de la première bête [note : la bête 
+juive 666], qui a été mortellement blessée et qui revint 
+ensuite à la vie. Il lui fut permis de donner vie à cette 
+statue afin qu'elle puisse parler. Puis la statue a ordonné 
+que quiconque refusait de l'adorer devait mourir. » La 
+liaison est importante car elle nous offre la clé de 
+compréhension pour identifier la bête surgie de la terre 
+avec le faux prophète.
  
 > Apo 19:21 Toute leur armée fut tuée par 
 > l'épée  tranchante qui sortait de la 
@@ -2397,11 +2511,21 @@ Note technique: ce verset 19:20 confirme une importante liaison avec l'Apocalyps
 > cheval blanc. Et tous les vautours du 
 > ciel se sont se rassasièrent de leurs 
 > chairs.
-Le chevalier Jésus va tuer la bête juive 666 et le faux prophète aryen -- avec toutes leurs gigantesques armées.  C'est la fin de l'esprit diabolique de la juiverie et du faux prophète aryen. 
+Le chevalier Jésus va tuer la bête juive 666 et le faux 
+prophète aryen -- avec toutes leurs gigantesques armées. 
+C'est la fin de l'esprit diabolique de la juiverie et du 
+faux prophète aryen. 
 
-Comme cela est la dernière étape de l'histoire de l'humanité on peut conclure ceci: le chapitre suivant de l'apocalypse (20) n'est pas une continuité chronologique du chapitre 19.  On verra que l'Apocalypse 20 décrit l'histoire du monde d'une autre manière, pour arriver à la même finalité: la destruction de la bête 666 et du faux prophète.
+Comme cela est la dernière étape de l'histoire de l'humanité 
+on peut conclure ceci: le chapitre suivant de l'apocalypse 
+(20) n'est pas une continuité chronologique du chapitre 19.  
+On verra que l'Apocalypse 20 décrit l'histoire du monde 
+d'une autre manière, pour arriver à la même finalité: la 
+destruction de la bête 666 et du faux prophète.
 
-10.3 L'Apocalypse 20 présente en quelques lignes l'histoire du Christianisme aryen en Europe et 2000 ans de guerre raciale contre le reste du monde
+10.3 L'Apocalypse 20 présente en quelques lignes 
+l'histoire du Christianisme aryen en Europe et 2000
+ans de guerre raciale contre le reste du monde
 
 On va interpréter l'Apocalypse 20 verset par verset. 
 
@@ -2426,34 +2550,107 @@ On va interpréter l'Apocalypse 20 verset par verset.
 > été décapités à cause du témoignage 
 > pour Jésus, pour avoir proclamé la 
 > parole de Dieu.
-Je pense que les âmes mentionnés ici inclut principalement les martyres d'Éphèse et de Smyrne gravement persécutés pendant les 300 premiers ans du christianisme, comme décrit dans l'épisode précédent. 
+Je pense que les âmes mentionnés ici inclut principalement 
+les martyres d'Éphèse et de Smyrne gravement persécutés 
+pendant les 300 premiers ans du christianisme, comme décrit 
+dans l'épisode précédent. 
 > (continuation 20:4) J'ai vu les âmes 
 > de ceux qui n'avaient pas adoré la 
 > bête ou sa statue, ni accepté sa 
 > marque sur leur front ou sur leur 
 > main.
-À une première lecture, on peut naturellement raisonner que ce verset 20:4 ne parle plus des années 0-300, de l'ère de Smyrne ou d'Éphèse. Comme décrit dans l'épisode 3, la bête juive 666 va façonner le monde tout entier pour le rendre spirituellement malade. Le verset 13:16 dit «  Elle fera encore que les petits et les grands, les riches et les pauvres, les hommes libres et les esclaves, aient tous le caractère de la bête en leur main droite et sur leur front ». À une première vue, on peut donc penser que le verset 20:4 cité plus haut parle d'une période postérieure à l'instauration de la dictature juive 666.
+À une première lecture, on peut naturellement raisonner que 
+ce verset 20:4 ne parle plus des années 0-300, de l'ère de 
+Smyrne ou d'Éphèse. Comme décrit dans l'épisode 3, la bête
+juive 666 va façonner le monde tout entier pour le rendre 
+spirituellement malade. Le verset 13:16 dit «  Elle fera 
+encore que les petits et les grands, les riches et les 
+pauvres, les hommes libres et les esclaves, aient tous le 
+caractère de la bête en leur main droite et sur leur front 
+». À une première vue, on peut donc penser que le verset 
+20:4 cité plus haut parle d'une période postérieure à 
+l'instauration de la dictature juive 666.
 
-Mais une analyse plus fine peut révéler que ce n'est pas forcement le cas. L'épisode 9 (point D) a expliqué que la bête juive 666 a été un adversaire redoutable des chrétiens  depuis toujours.  La juiverie et le faux prophète ont essayé depuis l'époque d'Éphèse&Smyrne d'implanter leur conception de vie pharisaïque dans les cerveaux des fidèles.  On doit aussi tenir compte d'un point essentiel évoqué par l'épisode 3: « Il y a beaucoup qui ont fait l'erreur de voir ici que le pouvoir va essayer un jour d'implanter un dispositif électronique au niveau de la main droite ou du front. Je ne pense pas que cela soit vrai.  Il s'agit juste d'une conception de vie à implanter dans notre cerveau. » 
+Mais une analyse plus fine peut révéler que ce n'est pas 
+forcement le cas. L'épisode 9 (point D) a expliqué que la 
+bête juive 666 a été un adversaire redoutable des chrétiens  
+depuis toujours.  La juiverie et le faux prophète ont essayé 
+depuis l'époque d'Éphèse&Smyrne d'implanter leur conception 
+de vie pharisaïque dans les cerveaux des fidèles.  On doit 
+aussi tenir compte d'un point essentiel évoqué par l'épisode 
+3: « Il y a beaucoup qui ont fait l'erreur de voir ici que 
+le pouvoir va essayer un jour d'implanter un dispositif 
+électronique au niveau de la main droite ou du front. Je ne 
+pense pas que cela soit vrai.  Il s'agit juste d'une 
+conception de vie à implanter dans notre cerveau. » 
   
-La bête juive 666 et les faux idéologues blancs ont lutté dans cette direction même pendant les 300 premiers ans du christianisme. Leur bût était généralement le même qu'aujourd'hui: utiliser la ruse pour implanter dans le cerveau des chrétiens une conception de vie contraire au Christ. Ce rapprochement entre l'époque de nos jours et celle de l'église de Smyrne nous indique que le verset 20:4 cité plus haut peut bien concerner les chrétiens des années 0-300 qui ont résisté (moralement) aux ruses des juifs et du faut prophète. On peut dire que ces chrétiens n'ont « pas adoré la bête ou sa statue, ni accepté sa marque sur leur front ou sur leur main. »
+La bête juive 666 et les faux idéologues blancs ont lutté 
+dans cette direction même pendant les 300 premiers ans du 
+christianisme. Leur bût était généralement le même 
+qu'aujourd'hui: utiliser la ruse pour implanter dans le 
+cerveau des chrétiens une conception de vie contraire au 
+Christ. Ce rapprochement entre l'époque de nos jours et 
+celle de l'église de Smyrne nous indique que le verset 20:4 
+cité plus haut peut bien concerner les chrétiens des années 
+0-300 qui ont résisté (moralement) aux ruses des juifs et du 
+faut prophète. On peut dire que ces chrétiens n'ont « pas 
+adoré la bête ou sa statue, ni accepté sa marque sur leur 
+front ou sur leur main. »
 
  
 > (fin verset 20:4) Ils sont revenus à 
 > la vie, et ils ont régné avec le 
 > Christ pendant mille ans.  
-Les sacrifices des martyrs de Smyrne ont conduit à environ 1000 ans d'Europe chrétienne. Ce sont en effet les européens d'Éphèse et de Smyrne qui ont entamé la révolution chrétienne sur cette Terre -- une primauté partagé avec aucun autre peuple. Ils ont bâti partout en Europe des noyaux de fidèles qui ont grandi progressivement pour  conduire à 1000 ans de bâtisseurs de cathédrales.  Pendant ce millénaire, notre civilisation exaltait l'amour du Christ plus que toute autre conception de vie.  Il se peut que ces 1000 ans soient représentés par l'église de Thyatire.
+Les sacrifices des martyrs de Smyrne ont conduit à environ 
+1000 ans d'Europe chrétienne. Ce sont en effet les européens 
+d'Éphèse et de Smyrne qui ont entamé la révolution 
+chrétienne sur cette Terre -- une primauté partagé avec 
+aucun autre peuple. Ils ont bâti partout en Europe des 
+noyaux de fidèles qui ont grandi progressivement pour  
+conduire à 1000 ans de bâtisseurs de cathédrales.  Pendant 
+ce millénaire, notre civilisation exaltait l'amour du Christ 
+plus que toute autre conception de vie.  Il se peut que ces 
+1000 ans soient représentés par l'église de Thyatire.
 
-Il n'est pas essentiel de placer exactement ces 1000 ans. Il peut s'agir, grosso-modo, des années 500-1500. Il est inutile de chercher une ligne de démarcation très nette et stricte pour délimiter le début ou la fin de cette période.  Le passage d'une époque à l'autre est graduel. On peut dire que les martyrs des années 0-300 « ont régné avec le Christ pendant mille ans » parce que les européens bâtisseurs de cathédrales des années 500-1500 sont les successeurs de ces martyres des années 0-300.
+Il n'est pas essentiel de placer exactement ces 1000 ans. Il 
+peut s'agir, grosso-modo, des années 500-1500. Il est 
+inutile de chercher une ligne de démarcation très nette et 
+stricte pour délimiter le début ou la fin de cette période.  
+Le passage d'une époque à l'autre est graduel. On peut dire 
+que les martyrs des années 0-300 « ont régné avec le Christ 
+pendant mille ans » parce que les européens bâtisseurs de 
+cathédrales des années 500-1500 sont les successeurs de ces 
+martyres des années 0-300.
 
-Leurs idées, leurs bagage génétique, leur structure mentale et leur modèle d'humanité ont continué à vivre pendant ces 1000 ans. Les gens qui possèdent la même structure mentale (ou neuronale) ont la même spiritualité et conçoivent le monde d'une manière similaire, car cette structure neuronale façonne les sources (profondes) de réflexion. Cela les conduit au même rapport avec le monde et au même état d'esprit général -- dans ce cas, un esprit raccord avec le Christ. 
+Leurs idées, leurs bagage génétique, leur structure mentale 
+et leur modèle d'humanité ont continué à vivre pendant ces 
+1000 ans. Les gens qui possèdent la même structure mentale 
+(ou neuronale) ont la même spiritualité et conçoivent le 
+monde d'une manière similaire, car cette structure neuronale 
+façonne les sources (profondes) de réflexion. Cela les 
+conduit au même rapport avec le monde et au même état 
+d'esprit général -- dans ce cas, un esprit raccord avec le 
+Christ. 
 
 > Apo 20:5 C'est la première résurrection. 
 > (Les autres morts ne reviendront pas à 
 > la vie avant la fin des mille ans).
-Il s'agit encore de la résurrection de l'esprit et des caractéristiques innés des européens d'Éphèse&Smyrne. Cet esprit a dominé les 1000 ans d'Europe chrétienne.
+Il s'agit encore de la résurrection de l'esprit et des 
+caractéristiques innés des européens d'Éphèse&Smyrne. Cet 
+esprit a dominé les 1000 ans d'Europe chrétienne.
 
-Le texte entre parenthèses plus haut fait référence aux non-chrétiens et aux juifs qui ont eu un pouvoir très limité avant la fin des 1000 ans. Ils vivaient souvent séparés du monde blanc, en ghettos, en communautés isolées, sans pouvoir de décision sur l'esprit des gens.  Ainsi, leur vie n'était pas vraiment visible avant la fin du millénaire.  Ils était très effacés.  C'est sous ce prisme qu'on pourra interpréter les mots « morts » ou « vivants » dans plusieurs versets de l'Apocalypse. Plus tard, la fin de ce millénaire a apporté les premières « émancipations » des juifs; c'est comme ça que les juifs ont commencé progressivement à tirer les ficèles dans l'ombre.
+Le texte entre parenthèses plus haut fait référence aux 
+non-chrétiens et aux juifs qui ont eu un pouvoir très limité 
+avant la fin des 1000 ans. Ils vivaient souvent séparés du 
+monde blanc, en ghettos, en communautés isolées, sans 
+pouvoir de décision sur l'esprit des gens.  Ainsi, leur vie 
+n'était pas vraiment visible avant la fin du millénaire. 
+Ils était très effacés.  C'est sous ce prisme qu'on pourra 
+interpréter les mots « morts » ou « vivants » dans plusieurs 
+versets de l'Apocalypse. Plus tard, la fin de ce millénaire 
+a apporté les premières « émancipations » des juifs; c'est 
+comme ça que les juifs ont commencé progressivement à tirer 
+les ficèles dans l'ombre.
 
 > Apo 20:6 Bénis et saints sont ceux qui 
 > ont part à la première résurrection. 
@@ -2461,32 +2658,53 @@ Le texte entre parenthèses plus haut fait référence aux non-chrétiens et aux
 > pouvoir, mais ils seront des prêtres 
 > de Dieu et du Christ et régneront avec 
 > lui pendant les mille ans.
-Cette description rappelle ce qui a été annoncé à l'église martyre de Smyrne par l'Apocalypse 2.11 : « Celui qui est victorieux ne sera pas touché par la seconde mort », voir le point C de l'épisode 9. Je pense que la seconde mort c'est la condamnation définitive par le Christ, au moment du jugement dernier. 
+Cette description rappelle ce qui a été annoncé à l'église 
+martyre de Smyrne par l'Apocalypse 2.11 : « Celui qui est 
+victorieux ne sera pas touché par la seconde mort », voir le 
+point C de l'épisode 9. Je pense que la seconde mort c'est 
+la condamnation définitive par le Christ, au moment du 
+jugement dernier. 
 
-10.3.2 Les peuples du monde entier -- Gog et Magog -- en guerre contre l'aryen
+10.3.2 Les peuples du monde entier -- Gog et Magog -- en 
+guerre contre l'aryen
 
 > Apo 20:7 À la fin des mille ans, Satan 
 > sera libéré de sa prison.
 > Apo 20:8 Il sortira pour séduire les 
 > nations aux quatre coins de la terre, 
 > qu'on appelle Gog et Magog.
-La guerre de Gog et Magog concerne une prophétie de l'ancien testament que j'ai interprété dans l'épisode 4. Il s'agit de la guerre du monde entier contre les peuples de souche européenne. La seconde guerre mondiale a été juste une étape de cette guerre plus générale de Gog et Magog contre l'homme aryen. Cela a culminé avec l'invasion toujours croissante des non-européens que nous constatons aujourd'hui.  Cette guerre continue en ce moment même, en 2022. On a toléré les juifs (même à la marge de nos sociétés) et ils ont réussi prendre le pouvoir de l'intérieur.  Ils n'hésiteront pas à remplacer nos enfants avec races les plus sales de la terre.
+La guerre de Gog et Magog concerne une prophétie de l'ancien 
+testament que j'ai interprété dans l'épisode 4. Il s'agit de 
+la guerre du monde entier contre les peuples de souche 
+européenne. La seconde guerre mondiale a été juste une étape 
+de cette guerre plus générale de Gog et Magog contre l'homme 
+aryen. Cela a culminé avec l'invasion toujours croissante 
+des non-européens que nous constatons aujourd'hui.  Cette 
+guerre continue en ce moment même, en 2022. On a toléré les 
+juifs (même à la marge de nos sociétés) et ils ont réussi 
+prendre le pouvoir de l'intérieur.  Ils n'hésiteront pas à 
+remplacer nos enfants avec races les plus sales de la terre.
 
 > Apo 20:9 Je les vis monter sur la 
 > vaste plaine de la terre et entourer 
 > le peuple de Dieu et la ville 
 > bien-aimée.
-Beaucoup de traductions françaises utilisent l'expression « le camps des saints » à la place de « la ville bien-aimée.  ». Cela fait référence à l'Europe chrétienne assiégée. Les saints ont été en effet un repère culturel et un marqueur important des temps des cathédrales en Europe, à la fois pour une raison raciale et pour une raison religieuse:
-- Les saints traditionnels (sanctifié depuis longtemps, 
-  avant les papes modernes) ont presque toujours été de 
-  race européenne. Regardez leur représentations 
-  dans les églises qui n'ont pas (encore) été démolies.
-- De point de vue religieux, ces saints ont eu à leur 
-  époque une influence énorme sur l'esprit du peuple.  
-  D'innombrables croyants leur ont adressé des prières.  
-  On garde encore des traces de cette période: regardez
-  le grand nombre de villes et de rues qui portent 
-  encore le nom d'un saint. 
+Beaucoup de traductions françaises utilisent l'expression « 
+le camps des saints » à la place de « la ville bien-aimée.  
+». Cela fait référence à l'Europe chrétienne assiégée. Les 
+saints ont été en effet un repère culturel et un marqueur 
+important des temps des cathédrales en Europe, à la fois pour 
+une raison raciale et pour une raison religieuse:
+    - Les saints traditionnels (sanctifié depuis longtemps, 
+      avant les papes modernes) ont presque toujours été de 
+      race européenne. Regardez leur représentations 
+      dans les églises qui n'ont pas (encore) été démolies.
+    - De point de vue religieux, ces saints ont eu à leur 
+      époque une influence énorme sur l'esprit du peuple.  
+      D'innombrables croyants leur ont adressé des prières.  
+      On garde encore des traces de cette période: regardez
+      le grand nombre de villes et de rues qui portent 
+      encore le nom d'un saint. 
 
 > (fin verset 20:9) Mais le feu 
 > descendit du ciel sur les armés 
@@ -2497,29 +2715,131 @@ Beaucoup de traductions françaises utilisent l'expression « le camps des saint
 > bête et le faux prophète. Là, ils 
 > seront tourmentés jour et nuit, pour 
 > les siècles des siècles.
-C'est le même tableau que celui des 2 derniers versets de l'Apocalypse 19 (commentés dans la section 10.2.1): la condamnation finale de la bête juive et du faux prophète blanc qui ont uni leur forces pour détruire l'Europe chrétienne. 
+C'est le même tableau que celui des 2 derniers versets de 
+l'Apocalypse 19 (commentés dans la section 10.2.1): la 
+condamnation finale de la bête juive et du faux prophète 
+blanc qui ont uni leur forces pour détruire l'Europe 
+chrétienne. 
 
-La doctrine chrétienne a été une des premières cibles des juifs; ensuite, ils ont réussi à mobiliser le monde entier Gog et Magog contre absolument tous les peuples de souche européenne, chrétiens ou pas.
+La doctrine chrétienne a été une des premières cibles des 
+juifs; ensuite, ils ont réussi à mobiliser le monde entier 
+Gog et Magog contre absolument tous les peuples de souche 
+européenne, chrétiens ou pas.
 
-Voici le point essentiel à retenir: Jésus nous annonce qu'il va intervenir. Je suis récemment tombé sur cette phrase: « Les événements le plus importants de la Bible sont parfois ceux qui sont présentés le plus brièvement. », dans une note au verset 24:3 du livre de l'Exode, la bible des peuples.  Même si ce verset (20:9) est cour, on peut faire attention: « le feu descendit du ciel sur les armés attaquantes et les dévora. ».
+Voici le point essentiel à retenir: Jésus nous annonce qu'il 
+va intervenir. Je suis récemment tombé sur cette phrase: « 
+Les événements le plus importants de la Bible sont parfois 
+ceux qui sont présentés le plus brièvement. », dans une note 
+au verset 24:3 du livre de l'Exode, la bible des peuples.  
+Même si ce verset (20:9) est cour, on peut faire attention: 
+« le feu descendit du ciel sur les armés attaquantes et les 
+dévora. ».
 
 UNE CONCLUSION GÉNÉRALE
 
-Le Tout-Puissant va intervenir pour sauver une partie de ceux qui portent encore en eux la flamme de l'amour d'Éphèse et de Smyrne, en partie grâce à leur héritage génétique.  L'objectif ici est de construire un bateau de sauvetage pour y attirer le plus de monde. À l'époque d'aujourd'hui on ne peut plus espérer qu'un homme de génie (comme Hitler) pourrait venir et entrainer un pays tout entier vers une renaissance générale.  On ne peut plus renverser l'ordre mondial. C'est qu'une (petite) partie de nos peuples qui pourra potentiellement être sauvée. Il s'agit de tous ceux qui vont résister jusqu'au bout, jusqu'à la toute dernière heure (le retour du Christ). Voila notre but. 
+Le Tout-Puissant va intervenir pour sauver une partie de 
+ceux qui portent encore en eux la flamme de l'amour d'Éphèse 
+et de Smyrne, en partie grâce à leur héritage génétique.  
+L'objectif ici est de construire un bateau de sauvetage pour 
+y attirer le plus de monde. À l'époque d'aujourd'hui on ne 
+peut plus espérer qu'un homme de génie (comme Hitler) 
+pourrait venir et entrainer un pays tout entier vers une 
+renaissance générale.  On ne peut plus renverser l'ordre 
+mondial. C'est qu'une (petite) partie de nos peuples qui 
+pourra potentiellement être sauvée. Il s'agit de tous ceux 
+qui vont résister jusqu'au bout, jusqu'à la toute dernière 
+heure (le retour du Christ). Voila notre but. 
 
 
-10.4 Le Tout-Puissant ne va pas sauver tous les blancs: la couronne de la vie a été offerte à Smyrne
+10.4 Le Tout-Puissant ne va pas sauver tous les blancs:
+la couronne de la vie a été offerte à Smyrne
 
-N'interprétez l'intervention future du Christ d'une manière simpliste: « Jésus va revenir et il va sauver tous les blancs. Il suffit de faire appel à Jésus et on n'a plus de souci à se faire. » NON! Chaque nation doit lutter pour prouver son amour -- comme l'ont prouvé les églises d'Éphèse et de Smyrne. Historiquement, c'est connu que tous les chrétiens blancs n'ont pas eu le même rapport avec le Christ et pas la même capacité d'amour pour leurs semblables aryens. Selon les conditions citées dans Mat 25:35-40, Jésus pourrait intervenir même pour des aryens qui l'ont ignoré.
+N'interprétez l'intervention future du Christ d'une manière
+simpliste: « Jésus va revenir et il va sauver tous les 
+blancs. Il suffit de faire appel à Jésus et on n'a plus de 
+souci à se faire. » NON! Chaque nation doit lutter pour 
+prouver son amour -- comme l'ont prouvé les églises d'Éphèse 
+et de Smyrne. Historiquement, c'est connu que tous les 
+chrétiens blancs n'ont pas eu le même rapport avec le Christ 
+et pas la même capacité d'amour pour leurs semblables 
+aryens. Selon les conditions citées dans Mat 25:35-40, Jésus 
+pourrait intervenir même pour des aryens qui l'ont ignoré.
 
-Je rappelle et je continue un exemple de l'épisode 9: les slaves ne sont pas généralement de souche européenne au sens du rapport avec le Christ, car ils étaient probablement en Asie pendant les années 0-300. En tout cas, ils étaient séparés des églises apostoliques (autour de la Méditerrané) pas seulement par l'empire romain, mais aussi par le monde germanique. Ils ont été christianisés à partir de l'an 1000.  Ce sont les églises d'Éphèse et de Smyrne qui ont défini la Bible et qui ont bâti la fondation du Christianisme. En voyant les persécutions des peuples de Smyrne, Jésus leur a promis « la couronne de la vie » (Apocalypse 2:10). Il ne s'agit pas d'un cadeau partagé automatiquement avec tous les chrétiens ou avec tous les peuples blancs du monde (qui n'ont pas fait preuve d'autant d'amour pour le Christ). 
+Je rappelle et je continue un exemple de l'épisode 9: les 
+slaves ne sont pas généralement de souche européenne au sens 
+du rapport avec le Christ, car ils étaient probablement en 
+Asie pendant les années 0-300. En tout cas, ils étaient 
+séparés des églises apostoliques (autour de la Méditerrané) 
+pas seulement par l'empire romain, mais aussi par le monde 
+germanique. Ils ont été christianisés à partir de l'an 1000. 
+Ce sont les églises d'Éphèse et de Smyrne qui ont défini la 
+Bible et qui ont bâti la fondation du Christianisme. En 
+voyant les persécutions des peuples de Smyrne, Jésus leur a 
+promis « la couronne de la vie » (Apocalypse 2:10). Il ne 
+s'agit pas d'un cadeau partagé automatiquement avec tous les 
+chrétiens ou avec tous les peuples blancs du monde (qui 
+n'ont pas fait preuve d'autant d'amour pour le Christ). 
 
-Il ne s'agit pas seulement du premier contact chronologique avec le Christ, mais aussi de la détermination du peuple à défendre le Christ face aux autorité humaines.  Les slaves ont été christianisés à partir de l'an 1000 environ, souvent par un processus impulsé du haut en bas, par la conversion des princes. En Europe, au contraire, le christianisme s'est propagé du bas en haut: la volonté populaire à la base a été si forte qu'elle a fini par s'imposer au sommet du pouvoir -- après trois siècles de persécutions. Cela a prouvé la grande sincérité de l'amour. 
+Il ne s'agit pas seulement du premier contact chronologique 
+avec le Christ, mais aussi de la détermination du peuple à 
+défendre le Christ face aux autorité humaines.  Les slaves 
+ont été christianisés à partir de l'an 1000 environ, souvent 
+par un processus impulsé du haut en bas, par la conversion 
+des princes. En Europe, au contraire, le christianisme s'est 
+propagé du bas en haut: la volonté populaire à la base a été 
+si forte qu'elle a fini par s'imposer au sommet du pouvoir 
+-- après trois siècles de persécutions. Cela a prouvé la 
+grande sincérité de l'amour. 
 
-À la différence du premier siècle après J.C., l'histoire du christianisme ne compte aucun grand  missionnaire chargé par Dieu de transmettre ses paroles au peuples d'Europe pendant les années 100-300. C'est le petit peuple qui a propagé la révolution chrétienne dans le monde gréco-romain, ce qui justifie ce cadeau, la couronne de la vie.
+À la différence du premier siècle après J.C., l'histoire du 
+christianisme ne compte aucun grand  missionnaire chargé par 
+Dieu de transmettre ses paroles au peuples d'Europe pendant 
+les années 100-300. C'est le petit peuple qui a propagé la 
+révolution chrétienne dans le monde gréco-romain, ce qui 
+justifie ce cadeau, la couronne de la vie.
 
-Cependant, ce cadeau pourrait être partiellement partagé avec les slaves (de l'ouest ou du sud) qui ont aussi une ascendance européenne. Il s'agit surtout des slaves de l'Europe de l'Est qui ont connus des siècles de mélange et de voisinage avec des peuples d'Europe avec une nature innée très raccord avec le Christ. Parmi ses peuples, on peut compter: les latins les plus purs de l'ancien empire romain, les descendants des anciens grecs intégrés dans l'empire byzantin, des tribus germaniques, ou tout autre peuple avec une nature prédisposée au Christianisme.  Ces peuples sont souvent de souche européenne, au sens réel du terme, c.à.d., au sens de l'origine raciale profonde qui seule définit la plus grande partie du bagage génétique, en ignorant les accidents géographiques survenus après l'an 1000.  Ces slaves métissés doivent mener une lutte sans merci avec eux mêmes: ils doivent activer leur gènes aryennes dans leur sang discordant pour permettre à leur nature biologique aryenne (plus prédisposée au Christ) de prendre l'ascendant sur leur identité asiatique et despotique. Cette dernière est incompatible avec l'esprit du Christ. Si vous lisez les motivations idéologiques de l'opération Barbarosa, les pays de l'Axe ont réussi à correctement déceler ce principe despotique et asiatique qui anime si souvent les slaves.
+Cependant, ce cadeau pourrait être partiellement partagé 
+avec les slaves (de l'ouest ou du sud) qui ont aussi une 
+ascendance européenne. Il s'agit surtout des slaves de 
+l'Europe de l'Est qui ont connus des siècles de mélange et 
+de voisinage avec des peuples d'Europe avec une nature innée 
+très raccord avec le Christ. Parmi ses peuples, on peut 
+compter: les latins les plus purs de l'ancien empire romain, 
+les descendants des anciens grecs intégrés dans l'empire 
+byzantin, des tribus germaniques, ou tout autre peuple avec 
+une nature prédisposée au Christianisme.  Ces peuples sont 
+souvent de souche européenne, au sens réel du terme, c.à.d., 
+au sens de l'origine raciale profonde qui seule définit la 
+plus grande partie du bagage génétique, en ignorant les 
+accidents géographiques survenus après l'an 1000.  Ces 
+slaves métissés doivent mener une lutte sans merci avec eux 
+mêmes: ils doivent activer leur gènes aryennes dans leur 
+sang discordant pour permettre à leur nature biologique 
+aryenne (plus prédisposée au Christ) de prendre l'ascendant 
+sur leur identité asiatique et despotique. Cette dernière 
+est incompatible avec l'esprit du Christ. Si vous lisez les 
+motivations idéologiques de l'opération Barbarosa, les pays 
+de l'Axe ont réussi à correctement déceler ce principe 
+despotique et asiatique qui anime si souvent les slaves.
 
-Les peuples celtes ou germaniques ont été christianisés presque à l'époque de l'église de Smyrne, ou peu de temps après. Si les églises d'Éphèse et de Smyrne représentent principalement les greco-romains du sud de l'Europe de l'époque, les cathédrales de l'Europe médiévale ont été bâties en coopération avec les peuples germaniques situés au nord de l'empire romain. Je pense que les deux témoins dans l'Apcalypse 11:3 sont l'esprit du monde gréco-romain (le sud de l'Europe) et l'esprit du monde germanique (le nord de l'Europe). À la fin des temps, ils auront le pouvoir de prophétiser (annoncer la vérité divine) habillés de vêtements de deuil. Ils vont observer ce deuil parce qu'ils seront déshonorés par notre société et ils vont même devoir vivre cachés, en secret, comme décrit dans l'épisode 8 (voir aussi l'apocalypse 12:6).
+Les peuples celtes ou germaniques ont été christianisés 
+presque à l'époque de l'église de Smyrne, ou peu de temps 
+après. Si les églises d'Éphèse et de Smyrne représentent
+principalement les greco-romains du sud de l'Europe de 
+l'époque, les cathédrales de l'Europe médiévale ont été 
+bâties en coopération avec les peuples germaniques situés au 
+nord de l'empire romain. Je pense que les deux témoins dans 
+l'Apcalypse 11:3 sont l'esprit du monde gréco-romain (le sud
+de l'Europe) et l'esprit du monde germanique (le nord de 
+l'Europe). À la fin des temps, ils auront le pouvoir de 
+prophétiser (annoncer la vérité divine) habillés de 
+vêtements de deuil. Ils vont observer ce deuil parce qu'ils 
+seront déshonorés par notre société et ils vont même devoir 
+vivre cachés, en secret, comme décrit dans l'épisode 8 (voir 
+aussi l'apocalypse 12:6).
 
 
+
+
+
+```
