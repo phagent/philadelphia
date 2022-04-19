@@ -71,7 +71,7 @@ ps. PLAN
 
 [ÉPISODE  9 La juiverie et le faux prophète aryen contre les églises de l'Apocalypse ](#%C3%A9pisode-9-la-juiverie-et-le-faux-proph%C3%A8te-aryen-contre-les-%C3%A9glises-de-lapocalypse)
 
-ÉPISODE 10 (à venir) Décryptage de l'Apocalypse 20:6 où la destruction de la juiverie et des faux idéologues blancs 
+[ÉPISODE 10 Décryptage de l'Apocalypse 20:6 où la destruction de la juiverie et des faux idéologues blancs ](https://github.com/phagent/philadelphia/blob/main/index.md#%C3%A9pisode-10-d%C3%A9cryptage-de-lapocalypse-209-ou-la-destruction-de-la-juiverie-et-des-faux-id%C3%A9ologues-blancs)
 
 
 ## ÉPISODE 1: analyse complète de Daniel 2
